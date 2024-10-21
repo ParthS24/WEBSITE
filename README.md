@@ -1,1 +1,1 @@
-WT Project
+WT PROJECT
